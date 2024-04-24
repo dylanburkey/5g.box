@@ -1,2 +1,3 @@
 # 5g.box
-5g.box
+
+## This domain is for sale. 
